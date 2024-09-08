@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Konigswife
+- 👀 I’m interested in- COD, art, music
+- 🌱 I’m currently- learning nothing
+- 💞️ I’m looking to collaborate on- art
+- 📫 How to reach me- kairae66@gmail.com
+- 😄 Pronouns: They/them
+- ⚡ Fun fact: None
